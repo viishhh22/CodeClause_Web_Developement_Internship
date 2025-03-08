@@ -19,6 +19,5 @@
 ![Screenshot (370)](https://github.com/user-attachments/assets/6689ff41-e8d6-4316-ba2b-8af1a3f32bbb)
 ![Screenshot (371)](https://github.com/user-attachments/assets/a85f16ad-dd03-44a5-9d8e-7dbd23754008)
 
-# 4. MUSIC PLATFORM
 
 
